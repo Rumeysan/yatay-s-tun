@@ -1,1 +1,0 @@
-# yatay-s-tun
